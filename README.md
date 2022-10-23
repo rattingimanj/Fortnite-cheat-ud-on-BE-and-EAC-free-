@@ -1,4 +1,4 @@
-# Fortnite-cheat-ud-on-BE-and-EAC-free-
+# Fortnite-cheat-ud-on-BE-and-EAC-free
 
 Join the discord server if you want a free Fortnite cheat ud on BE and EAC releasing at 300 members
 
